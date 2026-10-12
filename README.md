@@ -1,5 +1,7 @@
 I do not associate with any GitHub user that don't have a return follow nor mention under this handle unless **you** have been personally removed
 #
+Mostly beside the Call of Duty area in safe or somewhere in the 18+ server unless accompanying following mentions
+
 [**@RivasTz**](https://github.com/RivasTz) [**@vivathesonicexefan**](https://github.com/vivathesonicexefan) [**@SukiiChu**](https://github.com/SukiiChu) [**@kweksaysquack**](https://github.com/kweksaysquack)
 
-[**@tirgery123**](https://github.com/tirgery123) [**@zv6k**](https://github.com/zv6k) [**@141ZXR**](https://github.com/141ZXR) [**@fluezoalen**](https://github.com/fluezoalen) [**@IoneIytree**](https://github.com/IoneIytree) [**@SilentCriesOfDeath**](https://github.com/SilentCriesOfDeath) [**@windlesstorm**](https://github.com/windlesstorm) [**@tir-tyres**](https://github.com/tir-tyres) [**@sanestpsychopathever**](https://github.com/sanestpsychopathever) [**@realnpokemon**](https://github.com/realnpokemon)
+[**@tirgery123**](https://github.com/tirgery123) [**@zv6k**](https://github.com/zv6k) [**@AutomobileEnthusiast**](https://github.com/AutomobileEnthusiast) [**@fluezoalen**](https://github.com/fluezoalen) [**@IoneIytree**](https://github.com/IoneIytree) [**@SilentCriesOfDeath**](https://github.com/SilentCriesOfDeath) [**@windlesstorm**](https://github.com/windlesstorm) [**@tir-tyres**](https://github.com/tir-tyres) [**@sanestpsychopathever**](https://github.com/sanestpsychopathever) [**@teamplasmaking**](https://github.com/teamplasmaking)
