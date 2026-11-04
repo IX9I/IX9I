@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
- <img width="861" height="501" alt="4809348" src="https://github.com/user-attachments/assets/0e42e0eb-2a3f-44a3-8072-a1905d423167" />
+ <img width="861" height="501" alt="4809348" src="https://github.com/user-attachments/assets/f93ac004-5781-4a14-a435-3259a8853864" />
 <p align="center">
   $\color{#00FF42}\text{𝘉𝘌𝘞𝘈𝘙𝘌 𝘖𝘍 𝘛𝘏𝘖𝘜 𝘞𝘈𝘛𝘊𝘏𝘌𝘙}$
 <p align="center">
